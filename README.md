@@ -1,4 +1,4 @@
-# Orangestar – 快晴
+# Orangestar – 快晴 (feat. Hatsune Miku)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
